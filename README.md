@@ -1,1 +1,7 @@
 # just
+
+https://borzykina8787.github.io/docs/vpn-dlya-happ-2026-skachat-rabochuyu-podpisku-i-konfig-dlya-happ.pdf
+https://borzykina8787.github.io/docs/vpn-dlya-telegram-2026-skachat-rabochiy-i-stabilnyy-vpn-dlya-telegram.pdf
+https://borzykina8787.github.io/docs/vpn-na-android-2026-skachat-rabochiy-i-stabilnyy-vpn-dlya-android.pdf
+https://borzykina8787.github.io/docs/vpn-na-ayfon-2026-skachat-rabochiy-i-stabilnyy-vpn-dlya-iphone.pdf
+https://borzykina8787.github.io/docs/vpn-na-pk-2026-skachat-rabochiy-i-bystryy-vpn-dlya-windows.pdf
